@@ -1,3 +1,4 @@
 # Lab 00
-## Currently configuring as I go
-#### 2:01 AM
+## Zeid Zawaideh 
+## 887079481
+## zeidfz@csu.fullerton.edu
